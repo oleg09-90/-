@@ -6,7 +6,7 @@
 
 ### Задание 1
 ![1](https://github.com/user-attachments/assets/76073de0-368a-444a-adc4-e8c2f2c41ee4)
-![2](https://github.com/user-attachments/assets/09caef68-aa45-409b-b477-db887dd612c8)
+![14](https://github.com/user-attachments/assets/0ddb051c-3595-4266-bb98-422ad3a8e722)
 ### Задание 2
 ![13](https://github.com/user-attachments/assets/9827ce07-2cb5-4fbd-915a-9114d5479180)
 ![4](https://github.com/user-attachments/assets/4266d043-6fc0-4199-a8cb-442f9f3b7694)
