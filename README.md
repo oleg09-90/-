@@ -8,8 +8,8 @@
 ![1](https://github.com/user-attachments/assets/76073de0-368a-444a-adc4-e8c2f2c41ee4)
 ![14](https://github.com/user-attachments/assets/0ddb051c-3595-4266-bb98-422ad3a8e722)
 ### Задание 2
-![13](https://github.com/user-attachments/assets/9827ce07-2cb5-4fbd-915a-9114d5479180)
 ![4](https://github.com/user-attachments/assets/4266d043-6fc0-4199-a8cb-442f9f3b7694)
+![17](https://github.com/user-attachments/assets/fe29d74e-1bdd-402f-b07d-9ae3abec69de)
 ### Задание 3
 ![5](https://github.com/user-attachments/assets/067d3670-1567-4b15-8b67-751d10c41d9a)
 ![6](https://github.com/user-attachments/assets/ff8739f6-5644-49c4-9b95-5185312c1243)
